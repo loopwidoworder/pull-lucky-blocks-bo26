@@ -1,4 +1,4 @@
-#  
+#  Experience baddies like never before with baddies Script stealth, the #1 Script. Includes auto-farm and unlimited stamina for unbeatable performance.
 
 
 
